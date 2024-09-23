@@ -2,4 +2,4 @@
 Jest to bateryjny generator wolnej energi do modeli dronów lub statków kosmicznych lub aut bez potrzeby montowania mocnych akumulatorów. 
 Działa z 1,5V do 230V. 
 Z drutem nawojowym i zapalniczką plazmową na USB można zrobić ten generator jako zasilacz a zaplaniczki plazmowe można kupić w internecie lub na stacji paliw. Z przejscowkami bez lutowania czy zaplaniczki plazmowej i drutu nie wyjdzie. 
-Te układy inne to nagroda frajer roku, pierdoła roku, Kaczor Donald żart roku, Serce roku, Bez myślność roku, Niby działa żart roku, Nobel i oskar roku, sztuka wojny roku, Pierdoła roku. 
+Te układy inne to nagroda frajer roku, pierdoła roku, Kaczor Donald żart roku, Serce roku, Bez myślność roku, Niby działa żart roku, Nobel i oskar roku, sztuka wojny roku, Pierdoła roku. Orenge lub telekomunicja nagroda You Tuber roku czy aktor roku lub poczta roku, List miłosny roku, Humanista poeata roku, Noweljasz roku, reżyser roku, Zajawka roku, Ćpun roku. Żyd roku. Ciota roku. Debil roku pierdoła. Ale tak nie wolno gadać bo dosłownie. Innych kombinacji nie da się zrobić. Co do tych smeatów to są to aktory i żarty i kaczory donaldy frajery roku. 
