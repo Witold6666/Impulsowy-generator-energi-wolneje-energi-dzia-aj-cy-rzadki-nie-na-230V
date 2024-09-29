@@ -17,3 +17,4 @@ To co daję to w podzięce dla świata za Vois kobiety sam robiłem. Mój Vois t
 Moduł generatora trzeba wlutować w wejscie AC 230V. Do zasilacza komputerowego trzeba wlutować baterie 3V lub 9V i dorobić do 230V AC włącznik off i on. 
 Chyba o to była wojna histori ziemi. 
 Za dużo jest guślarzów i rzemieśników za mało elektryków od zasilania. Jak z pieniedzmi za mało pieniedzy za mało surowców za dużo ludzi zmęczonych pracą i życiem.
+To szwajcaria i ta 112 ze szwajcari nie chce tych generatorów i jakaś Policja z elektrowni PGE raz na jakiś cykliczny czas. To szwjcaria i amisze są te zakazy od biedy i obowiązku biedy czy zakazu energi i rozumu oni chcą sercem i post wysiłkiem i sportem Amiesze i szwjcaria to ta bieda i kórwa to te społecznistwa zakazują z politykami energi. 
