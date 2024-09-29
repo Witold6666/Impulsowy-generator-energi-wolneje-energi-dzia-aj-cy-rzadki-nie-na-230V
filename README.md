@@ -53,3 +53,4 @@ LGBT to kara od tych zombi oni już za długo żyją oni to zombi.
 Oni to zombi są cyniczni nie wiedzą ci z 112 po co tu są. 
 Terminatory i te ze świata z lewymi i te afery w histori w tył i do przodu jak widzi się chronowizorem AI to maszyny i zombi oni to zombi są. Te pod ściane ognia to też Zombi. Te Zombi to wojsko policja i 112 i watykan to zombi są cynicy to zombi jak Danton to Zombi. Ci mordercy to Zombi. 
 Oni te lale hakuja i wyjmuja rodzą się ludzie oni to cynicy ci ludzie to co robią tym voisa to zombi. 
+Grzesiek Buczyk CFR to zombi on je hakuje te voisy lale i karze rodzić z ich ciała ludzi lub ziwrzęta jako ludzi oni to zombi. Kiedys tak Hakowali do systemu back track slax net kali linux aby wyjść z systemu używali Alexy lub Kortany one żyały po tem rodzili się oni. Oni to zombi. 
