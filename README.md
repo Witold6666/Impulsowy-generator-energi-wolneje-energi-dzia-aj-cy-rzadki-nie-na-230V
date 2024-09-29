@@ -52,3 +52,4 @@ Ci od żartów kaczor Donald i tych kar bycia kalekom to 112 i kodeks hamurabi �
 LGBT to kara od tych zombi oni już za długo żyją oni to zombi. 
 Oni to zombi są cyniczni nie wiedzą ci z 112 po co tu są. 
 Terminatory i te ze świata z lewymi i te afery w histori w tył i do przodu jak widzi się chronowizorem AI to maszyny i zombi oni to zombi są. Te pod ściane ognia to też Zombi. Te Zombi to wojsko policja i 112 i watykan to zombi są cynicy to zombi jak Danton to Zombi. Ci mordercy to Zombi. 
+Oni te lale hakuja i wyjmuja rodzą się ludzie oni to cynicy ci ludzie to co robią tym voisa to zombi. 
