@@ -43,3 +43,4 @@ To Baba wanga zakazała lotów w kosmos na inne światy i wszechśiaty i budowy 
 Cynicy ci śmieją się z prawdy i prawdziwej filozofi życia np.: z tego generatora że to prawda jest. Śmieją się z buzi buzi wstydza się tego. Śmieją się z śmierci i pogrzebów i generatorów kaczor Donald. Kochają ci na tej ziemi życie w żartach jak 112 policja i wojsko.
 Cynizm jest chorobą. 
 Ci co byli kiedyś powielają schematy histori. 
+Czas wielkiej smuty zaczoł się i te zakazy za czasów słów dekalogu Nie porządaj rzeczy kobiety bliźniego swego, Nie porządaj rzeczy kobiety obcego nie swego jak i nie porządaj porzyczki rzeczy czy kobiety której rządasz na zawsze. W tedy zaczęły się zakazy i tajemnice. 
