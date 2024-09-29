@@ -28,3 +28,4 @@ Powiedzmy że jestem Iron Men God i Post Odyn znam sekrety sam to budowałem od 
 112 daje nobla i oskara za sport a kase daje złośliwie na NGO. Czasami dawali ciepły koc trochę bardziej grzecnzym kobietę i koc. A za żarty kaczor donald dawali kasę dużą jak banki.
 To szwjcaria Amisze, zidy, chrześcijanie i jechowe i niektórzy inni mnie nie uznają za szefa mają wonty że nie biorę i celowo dają mi mało pieniędzy w pracy lub socjalu uwarzają mnie za gorszego lub zwykłego cywila. Kiedyś miałem moce post. Ale ktoś mi blokuje są zalerzne od nerwów. Nie akceptują mnie. Dla mnie świat chce tylko żyć a mi karze żyć w biedzie. 
 Urzędy to maszyny nastepny do urzędu.
+Dla komunistów te konstrukcje i generatory i schematy to grzech jak nadmierna ilość filozofi. Oni to tylko post sport.
