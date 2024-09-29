@@ -29,3 +29,4 @@ Powiedzmy że jestem Iron Men God i Post Odyn znam sekrety sam to budowałem od 
 To szwjcaria Amisze, zidy, chrześcijanie i jechowe i niektórzy inni mnie nie uznają za szefa mają wonty że nie biorę i celowo dają mi mało pieniędzy w pracy lub socjalu uwarzają mnie za gorszego lub zwykłego cywila. Kiedyś miałem moce post. Ale ktoś mi blokuje są zalerzne od nerwów. Nie akceptują mnie. Dla mnie świat chce tylko żyć a mi karze żyć w biedzie. 
 Urzędy to maszyny nastepny do urzędu.
 Dla komunistów te konstrukcje i generatory i schematy to grzech jak nadmierna ilość filozofi. Oni to tylko post sport.
+Oni płacą za żarty kaczor Donald duże majątki nie płacą za fakty. Płacą za żarty i pół prawdę kłamstwa żarty nie 100% kompletnych prawd bawią się w gry. 112 Daje nobla i oskary i kasę za żarty jest to nagroda oskar nobel za żarty za wynalzki jest to obelga jak ze strony obecnych urzędów patentowych. 
