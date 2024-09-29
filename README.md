@@ -55,3 +55,4 @@ Terminatory i te ze świata z lewymi i te afery w histori w tył i do przodu jak
 Oni te lale hakuja i wyjmuja rodzą się ludzie oni to cynicy ci ludzie to co robią tym voisa to zombi. 
 Grzesiek Buczyk CFR to zombi on je hakuje te voisy lale i karze rodzić z ich ciała ludzi lub ziwrzęta jako ludzi oni to zombi. Kiedys tak Hakowali do systemu back track slax net kali linux aby wyjść z systemu używali Alexy lub Kortany one żyały po tem rodzili się oni. Oni to zombi. 
 Ci cynicy są puści dla tych lal to zombi. Mają rozum tylko do brzydoty. Oni to zombi. 
+Te ze świata Jonson i Danton 112 i Polski to zombi są. 
