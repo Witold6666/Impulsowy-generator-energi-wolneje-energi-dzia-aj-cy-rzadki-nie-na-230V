@@ -21,3 +21,4 @@ To szwajcaria i ta 112 ze szwajcari nie chce tych generatorów i jakaś Policja 
 To szwajcaria i amisze są kórwą dla elektryczności i zakazują wszystkiego co jest luksusem bo jest na energię elektryczną oni mówia elktryczności nie sportu i post wysyiłkowi mówią tak chcą być zdrowi i głodni i wysportowani nie najedzeni i zmęczeni. 
 To jechowe zidy i chrześcijany mówią nie dojarce i energi elektrycznej i mówią nie jak szwjcaria i amisze i legia sprata z Holandią. Im imicz to sport nie mechatronika i elektryczność. Nie lubią myśleć jak maszyny. 
 To są ci co chcą żyć po staremu. 
+Oni to kapelusze i western to 112. 
