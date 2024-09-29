@@ -44,3 +44,4 @@ Cynicy ci śmieją się z prawdy i prawdziwej filozofi życia np.: z tego genera
 Cynizm jest chorobą. 
 Ci co byli kiedyś powielają schematy histori. 
 Czas wielkiej smuty zaczoł się i te zakazy za czasów słów dekalogu Nie porządaj rzeczy kobiety bliźniego swego, Nie porządaj rzeczy kobiety obcego nie swego jak i nie porządaj porzyczki rzeczy czy kobiety której rządasz na zawsze. W tedy zaczęły się zakazy i tajemnice. 
+Ten cynizm to kodeks hamurabi. 
