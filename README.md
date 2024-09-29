@@ -20,3 +20,4 @@ Za dużo jest guślarzów i rzemieśników za mało elektryków od zasilania. Ja
 To szwajcaria i ta 112 ze szwajcari nie chce tych generatorów i jakaś Policja z elektrowni PGE raz na jakiś cykliczny czas. To szwjcaria i amisze są te zakazy od biedy i obowiązku biedy czy zakazu energi i rozumu oni chcą sercem i post wysiłkiem i sportem Amiesze i szwjcaria to ta bieda i kórwa to te społecznistwa zakazują z politykami energi. 
 To szwajcaria i amisze są kórwą dla elektryczności i zakazują wszystkiego co jest luksusem bo jest na energię elektryczną oni mówia elktryczności nie sportu i post wysyiłkowi mówią tak chcą być zdrowi i głodni i wysportowani nie najedzeni i zmęczeni. 
 To jechowe zidy i chrześcijany mówią nie dojarce i energi elektrycznej i mówią nie jak szwjcaria i amisze i legia sprata z Holandią. Im imicz to sport nie mechatronika i elektryczność. Nie lubią myśleć jak maszyny. 
+To są ci co chcą żyć po staremu. 
