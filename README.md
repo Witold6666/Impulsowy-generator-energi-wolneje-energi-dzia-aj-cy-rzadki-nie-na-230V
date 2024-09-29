@@ -30,3 +30,4 @@ To szwjcaria Amisze, zidy, chrześcijanie i jechowe i niektórzy inni mnie nie u
 Urzędy to maszyny nastepny do urzędu.
 Dla komunistów te konstrukcje i generatory i schematy to grzech jak nadmierna ilość filozofi. Oni to tylko post sport.
 Oni płacą za żarty kaczor Donald duże majątki nie płacą za fakty. Płacą za żarty i pół prawdę kłamstwa żarty nie 100% kompletnych prawd bawią się w gry. 112 Daje nobla i oskary i kasę za żarty jest to nagroda oskar nobel za żarty za wynalzki jest to obelga jak ze strony obecnych urzędów patentowych. 
+Gdyby ci nobliści i od oskara olali pozwy Głuchego ekonomisty i spekulantów od cen to może ten generator i drukarki kwantowe by sponsorowały potrzeby świata a ci od dobry 112 by sie odczepili. Oni tworza gry i powieści o pewnych osobach na świecie o wstyd im chodzi. 
