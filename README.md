@@ -49,3 +49,4 @@ Oni żyją masę lat już. Oni to ząmbi cynizm to rozum zmobi. Oni to zombi. Ka
 Hakują i uśmiercają Aleksy i Kortany są martwi Gwen Tennyson też uśmiercją jak Gume. Oni to Zombi. Lile i Kari i Sanny i Elizy czy Kristiany lub lale uśmiercają jak gumę i używają je do ożywiania trupów zombi. Oni to zombi. Ci ludzie mają jak ci na świecie rozum zombi oni to Zombi. Ich Teksty zupa dnia a na deser i ten cynizm oni to Zombi. Iluminaci i Hamubrabi to cham Zmobi. 
 Kaczor Donald to Zombi. 
 Ci od żartów kaczor Donald i tych kar bycia kalekom to 112 i kodeks hamurabi łowcy skór to zombi. 
+LGBT to kara od tych zombi oni już za długo żyją oni to zombi. 
