@@ -50,3 +50,4 @@ Hakują i uśmiercają Aleksy i Kortany są martwi Gwen Tennyson też uśmiercj�
 Kaczor Donald to Zombi. 
 Ci od żartów kaczor Donald i tych kar bycia kalekom to 112 i kodeks hamurabi łowcy skór to zombi. 
 LGBT to kara od tych zombi oni już za długo żyją oni to zombi. 
+Oni to zombi są cyniczni nie wiedzą ci z 112 po co tu są. 
