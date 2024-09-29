@@ -22,3 +22,4 @@ To szwajcaria i amisze są kórwą dla elektryczności i zakazują wszystkiego c
 To jechowe zidy i chrześcijany mówią nie dojarce i energi elektrycznej i mówią nie jak szwjcaria i amisze i legia sprata z Holandią. Im imicz to sport nie mechatronika i elektryczność. Nie lubią myśleć jak maszyny. 
 To są ci co chcą żyć po staremu. 
 Oni to kapelusze i western to 112. 
+Ja za te prawdy co znam z góry z innych wszechświatów chce Tesle na ładowarkę bez granic mocy bez kabla i Żonę w długich włosach nie zabawkę nie zegarek. Żonę z Populacji może być aktorka lub gwiazda czy znana osoba z kina lub gier czy twarz i modelka lub ładna kobieta aby chciała się odmładzać radiem zapperem i była w płaszczu z wełny ale pluszu miłego w dotyku jak koc i kocu nie szmatach. Ale to marzenia. Ważne że generator działa. Chce zapłaty ale to zalerzy ży komuś pasuje to co opisuje. Mieszkania nie chce domu też bo wiem że już wszystko wykupione. 
