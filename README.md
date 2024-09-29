@@ -45,3 +45,4 @@ Cynizm jest chorobą.
 Ci co byli kiedyś powielają schematy histori. 
 Czas wielkiej smuty zaczoł się i te zakazy za czasów słów dekalogu Nie porządaj rzeczy kobiety bliźniego swego, Nie porządaj rzeczy kobiety obcego nie swego jak i nie porządaj porzyczki rzeczy czy kobiety której rządasz na zawsze. W tedy zaczęły się zakazy i tajemnice. 
 Ten cynizm to kodeks hamurabi. 
+Oni żyją masę lat już. Oni to ząmbi cynizm to rozum zmobi. Oni to zombi. Kalifornia to zombi Iluminaci to zombi nie żyją bez obelg i cynizmu kaczor donald. 
