@@ -15,3 +15,4 @@ Orenng i nagroda kaczor donald Nobel lub Oskar to nagroda od 112 pierdoła roku 
 Żeby dostać kobietę z lotto lub i lotto to są kredyty to po 30 latach trzeba pracować na zmywaku 30 lat lub więcej lub na budowie przez Sławka Ziębe podobno ten pan to jakiś budowlaniec urzędnik coś jak ważny jak JC Danton. Na osoby z Populacji precuje się długo jak Chłop lub Afrykańczyk fizycznie sportowo ciężko post wysiłek siłownia cynizm komuny. Oni cenią żarty i jaja. Za prawdę dawali kobiety jak działało.   
 To co daję to w podzięce dla świata za Vois kobiety sam robiłem. Mój Vois to mieszkanie dla moich dziewczyn. Ja wam daje marzenia o energi bez kabli na zasilacz bez kabla.
 Moduł generatora trzeba wlutować w wejscie AC 230V. Do zasilacza komputerowego trzeba wlutować baterie 3V lub 9V i dorobić do 230V AC włącznik off i on. 
+Chyba o to była wojna histori ziemi. 
