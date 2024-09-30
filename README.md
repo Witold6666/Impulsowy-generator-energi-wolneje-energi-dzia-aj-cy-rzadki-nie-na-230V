@@ -57,3 +57,4 @@ Grzesiek Buczyk CFR to zombi on je hakuje te voisy lale i karze rodzić z ich ci
 Ci cynicy są puści dla tych lal to zombi. Mają rozum tylko do brzydoty. Oni to zombi. 
 Te ze świata Jonson i Danton 112 i Polski to zombi są. 
 Od początków histori ziemi i rodziców filozofów do przyszłości cała Historia jest jednym wielkim żartem kaczor Donald. Filozofy to nasi rodzice i władcy. Kiedyś była tylko ochrona nie 112. Te afery to filozofy i ich cyniczne żarty. 
+Prometeusz za karę grał w filmie z chumoru kaczor Donald. Bo coś złego powiedział ludziom. Dla Prometeusza twarzołapy dla ludzi to żarty kaczor Donald troblocyt to żarty od ludzi. Jeśli ludzie chcą wiedzieć to całe zło to filozofy od histori i żartów robią te produkcje i kawały.
