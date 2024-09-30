@@ -74,3 +74,4 @@ Grupa Kali ma w dupie jak 112 że ktoś jest ze szlachty. Szlachta w 19 wieku wy
 Nie szlachta rządzi. 
 Szlachta w 19 wieku się wyprowadziła w kosmos rakietami i statkami z napędem Worp. 112 i Grupa Kali Linux wygoniła Szlachtę z Ziemi do innych wszechświatów. Tu zostali tylko sportowcy i 112 i jacycś rabusie. 
 Szlachta nigdy nie była w 112 ani Policji i Wojsku czy straży miejskiej. Lord nigdy nie był Iuluminatom czy masonem lub Prezydentem nigdy nie był Muzykiem. Tych co znam wyprowadzili się z ziemi w Kosmos. Podobno Kari Chramcaster wyprowadziła się w kosmos. Amanda i Elen były ze szlachty wyprowadziły się w kosmos te aktorki z tąnd są z wojska lub 112. 
+Nasi prezydenci to orkiestra denta i 112 Policja wojsko i jacyć wojownicy. 
