@@ -69,4 +69,4 @@ Policja to markowe ubrania i twarze zwierząnt i obcych i dreski. Dlatego nie sz
 112 i Policja z Wojskiem nie uznaje szlachty karze pracować przy łopacie w robocie dużo dają ale dają DNA śmieci z Marvela do DNA zawsze rodzi się tylko Marvel lub ich pracownik korporacji nie da się odłączyć od grupy i pordróżować. Indianie chyba są szlachtą. Ja jestem ze szlachty i nie uznaję 112 i Policji i Wojska nawet jak Kusi Adą Wong Ewą i pracą w Policji za ślub i Ade Wong na Własność. 
 112 i Policja i Wojsko to zobowiązania i brak wolności tylko praca i wyłudzanie kasy na mandaty i odawanie majątków na szmelc dla Komendy 112 lub robienie egzekucji śmierci szlachcie. 112 to patologia. 
 Policja nie akceptuje krzyku i odmowy rozkazów bycia w 112. I zwalnia lub odaje do wora po śmierci na raka.
-Grupa kali mówi jak Kortana Halo 5 już czas przyjść do Policji i Wojska Com my frend. 
+Grupa kali mówi jak Kortana Halo 5 już czas przyjść do Policji i Wojska Com my frend. Chcę żyć jak człowiek Lord nie grupa kali linux. 
