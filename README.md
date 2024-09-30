@@ -77,3 +77,4 @@ Szlachta nigdy nie była w 112 ani Policji i Wojsku czy straży miejskiej. Lord 
 Nasi prezydenci to orkiestra denta i 112 Policja wojsko i jacyć wojownicy. 
 112 Policja i Wojsko i Watykan to LGBT. 
 Szlachta ta te kobiety to miały tytuł Pani Lord, Hrabiny, Pani Hrabiny, Królowej, Cesarzowej i były w płaszczu długim do kostki w koc zwoltex. Podobno w 19 wieku 112 mieli ich dość i się wyprowadzili do innych wszechświatów żywi i zastraszeni przez 112 i LGBT. 
+Grupa Kali Linux i tych do systemu z Orionem i Reptylja i drako drakonia byli chamem dla Szlachty na ziemi. 
