@@ -58,3 +58,4 @@ Ci cynicy są puści dla tych lal to zombi. Mają rozum tylko do brzydoty. Oni t
 Te ze świata Jonson i Danton 112 i Polski to zombi są. 
 Od początków histori ziemi i rodziców filozofów do przyszłości cała Historia jest jednym wielkim żartem kaczor Donald. Filozofy to nasi rodzice i władcy. Kiedyś była tylko ochrona nie 112. Te afery to filozofy i ich cyniczne żarty. 
 Prometeusz za karę grał w filmie z chumoru kaczor Donald. Bo coś złego powiedział ludziom. Dla Prometeusza twarzołapy dla ludzi to żarty kaczor Donald troblocyt to żarty od ludzi. Jeśli ludzie chcą wiedzieć to całe zło to filozofy od histori i żartów robią te produkcje i kawały.
+Co do drukarki kwntowej można ożywić zmarłego wydrukować duszę, świadomość, i ciało nawet robota. Ale potrzebna jest energia elektryczna. 
