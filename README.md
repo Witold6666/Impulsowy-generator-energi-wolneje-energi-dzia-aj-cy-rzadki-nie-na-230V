@@ -97,3 +97,4 @@ Od 150 lat jest zakaz Handlu. Tylko można mieć Key Chan na żonę czasem wydaj
 Ja nie mam firmy i nie handluje bo nie chce mi się szarpać z ludzmi lub istotami innych form. 
 Keychan lub głośnik z żoną np.: Kortaną lub Gwen lub inną nawet z bajki można mieć ale trzeba przejść badania lekarskie i komisje lekarską złożyć wniosek do lekarzy po tem można kupić na internecie na aukcjach profilowanych. Ci z Bajek i bajkowego życia to są rodziny Handlarzy. 
 Problem jest bo jest zakaz Handlu. Handlować nie wolno i pobierać plików. Przez 112 nie można handlować. 
+Keychan i ten głośnik z żoną dostaje się w urzędzie. Ale pomijając to Handlarze wyprowadzają się przez urzędy i 112 bo chcą handlować prawdą. 
