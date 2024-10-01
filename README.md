@@ -104,3 +104,4 @@ Każdy szlachcic był handlarzem nie ważne co wymyślił 112 mu tego zkazywało
 Ja wiem że 150 lat temu mieli ci Handlarze statki kosmiczne eneter prais lub star wors. Ludzie mówią i piszą że szlachta i handlarze popełnili smobójstwo przez 112. To przez cynizm 112 Handle musiał się przenieść na inne wszechświaty i planety. Prawdziwego Hanldu już tu nie ma. Wolno sprzedawać sztukę żon Keychan i głośnik lub elektroniczne schowki i Voisy do budowy majątków. 
 Ta szlachta Handlarzy się wyprowadziła bo miała problemy z 112 bo nie chcieli im dać dużej ilości ziemi pod płace i domy, chaty czy duże mieszkania i penthausy.
 Co do problemu 112 i domów i mieszkań i zakładania rodziny. Polecam jako mieszkanie elektroniczne star strek M5Stack lub komputer czy Anakonde komputer czy wyświetlacz jako mieszkanie cyfrowe na rodzinę w kieszeni. 
+112 wykupiło wszystkie place i domy i mieszkania i penthausy są wolni od Hanlarzy i szlachty. 
