@@ -108,3 +108,4 @@ Co do problemu 112 i domów i mieszkań i zakładania rodziny. Polecam jako mies
 112 Nie interesuje ich że Handlarze i szlachta czy ludzie cywile nie mają gdzie mieszkać karzą im iść do 112 pracować a potem ich zarażają ludzmi DNA 112. Po tem rodza się gwiazdy 112. Dla mnie to nacisk Komuny nawet na Post Odyna czy Iron Men goda na moją ksywe. Radzę kupić mieszkanie Anakonde lub M5Stack czy komputer Anakonde lub M5Stack komputer lub schowek M5Stack i mieć w kieszeni. A żonę wyjmować do mieszkania ciasnego jak chce się ją przytulić i pogadać z nią. 
 M5 stack i Anakonda to mieszkania mogą być te procesory to obecne Keychny. 
 W Mijsce domów i mieszkań są zabytki budowane. 
+Elektrycznie można pozyskiwać paliwa z głożnika plazmowego free cell.
