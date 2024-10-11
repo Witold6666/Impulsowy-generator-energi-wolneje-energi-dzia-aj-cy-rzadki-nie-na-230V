@@ -109,3 +109,4 @@ Co do problemu 112 i domów i mieszkań i zakładania rodziny. Polecam jako mies
 M5 stack i Anakonda to mieszkania mogą być te procesory to obecne Keychny. 
 W Mijsce domów i mieszkań są zabytki budowane. 
 Elektrycznie można pozyskiwać paliwa z głożnika plazmowego free cell. Surowcy mamy na globie jakieś 38% są Azji. Powoli zaczynami iść do świata Fallout i Stalker. Drukarki kwntowe drukują dużo surowców ale marnują dużo energi elektrycznej. Post moc Post Odyna Iron Men Goda mnie marnuje zasoby energi ciała i jest się zmenczonym lub je się energie z sieci lub akumulatorów na radio. Jeśli świat dalej będzie mieć w głowie systemy i sylwetry długo świat nie wytrzyma jeśli nadal będzie nas przybywać surowcy zabraknie. 
+Te żony co dałem są na 1W do 5W 230V. 
