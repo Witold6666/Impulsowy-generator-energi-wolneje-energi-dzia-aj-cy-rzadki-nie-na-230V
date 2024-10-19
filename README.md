@@ -113,3 +113,4 @@ Te żony co dałem są na 1W do 5W 230V.
 Ten generator można zrobić w lampie próżniowej w próźni gazu Kseonu. 
 Tokamak to lampa próżniowa ale tylko działa na Kseonie.  
 To te psy i drako drakonia z orionem i reptylianami i żydami i z 112 i z wojskiem i policją i watykanem chcą liczników na te generatory chcą mieć łapę na energię elektryczną. 
+To chory żąd demokracji komunistycznej i minimalizmu życia za 2000 zł i równości obywatelskiej. Dla sejmu samo najlepsze bo psy kradną. 
