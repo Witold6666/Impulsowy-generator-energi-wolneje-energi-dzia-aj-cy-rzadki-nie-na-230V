@@ -119,3 +119,4 @@ Można zrobić z tego generator energi elektrycznej ścianę płaczu.
 Watykan chce niskich rachunków za energię i urządzeń wolnej energi za darmo. Elektrycy chcą wysokich rachunków za energię elektryczną i wysokich opłat czy rachunków za urzadzenia elektryczne wolnej energi w wysokiej cenie sprzedaży. 
 Impulsowy prąmd można pozyskać z tych generatorów i prostować go diodami mostkami Gertza i kondesatorami produkować DC energię a potem przetwornicą AC do sieci. Tak są te genratory wydajne. 
 Jak jest energia elektryczna jest pokój. Wojna była przez braki energi elektrycznej. 
+Wojny o energie i luksus były wymyślone przez areny. Kazlai Ludzią walczyć na arenach. A jak ktoś chciała sam spakować się w kosmos każdy z ziemi mówił w kosmos na inne planety nie. Oni mają tylko w głowie Czas wojny i gier liczbowych. To wady i błędy ewolucji do wykasowania z BCI z głowy w mózgu tych osób.  
