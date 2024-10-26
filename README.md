@@ -117,3 +117,4 @@ To chory żąd demokracji komunistycznej i minimalizmu życia za 2000 zł i rów
 Powiesimy ich. 
 Można zrobić z tego generator energi elektrycznej ścianę płaczu. 
 Watykan chce niskich rachunków za energię i urządzeń wolnej energi za darmo. Elektrycy chcą wysokich rachunków za energię elektryczną i wysokich opłat czy rachunków za urzadzenia elektryczne wolnej energi w wysokiej cenie sprzedaży. 
+Impulsowy prąmd można pozyskać z tych generatorów i prostować go diodami mostkami Gertza i kondesatorami produkować DC energię a potem przetwornicą AC do sieci. Tak są te genratory wydajne. 
