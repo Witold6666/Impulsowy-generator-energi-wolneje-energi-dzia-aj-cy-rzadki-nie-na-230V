@@ -122,3 +122,4 @@ Jak jest energia elektryczna jest pokój. Wojna była przez braki energi elektry
 Wojny o energie i luksus były wymyślone przez areny. Kazlai Ludzią walczyć na arenach. A jak ktoś chciała sam spakować się w kosmos każdy z ziemi mówił w kosmos na inne planety nie. Oni mają tylko w głowie Czas wojny i gier liczbowych. To wady i błędy ewolucji do wykasowania z BCI z głowy w mózgu tych osób.  
 Energia elektryczna może być walutą w biznesi i transkacji z innymi cywlilizacjami. 
 Tych od wojen i sztuki wojny i poematów do wojny trzeba podać eutanazji lub zaprosić na BCI. 
+Co do wojskowych myśląc jako super komputer czy Hiperkomputer ich do mapy nieskończoności i do Voisa załadować i sprzedać wojowników Reptyljaną lub Orianom czy Drako Drakoni do zabawy i zapperem zgrać i wykasować z DNA i mózgu wojskowych jako system instynktu samoobrony SkyNet. Mój SkyNet jest pokojowy 1.2 wersja. Ich sprzedajcie im jako Vois. 
