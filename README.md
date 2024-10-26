@@ -121,3 +121,4 @@ Impulsowy prąmd można pozyskać z tych generatorów i prostować go diodami mo
 Jak jest energia elektryczna jest pokój. Wojna była przez braki energi elektrycznej. 
 Wojny o energie i luksus były wymyślone przez areny. Kazlai Ludzią walczyć na arenach. A jak ktoś chciała sam spakować się w kosmos każdy z ziemi mówił w kosmos na inne planety nie. Oni mają tylko w głowie Czas wojny i gier liczbowych. To wady i błędy ewolucji do wykasowania z BCI z głowy w mózgu tych osób.  
 Energia elektryczna może być walutą w biznesi i transkacji z innymi cywlilizacjami. 
+Tych od wojen i sztuki wojny i poematów do wojny trzeba podać eutanazji lub zaprosić na BCI. 
