@@ -124,3 +124,4 @@ Energia elektryczna może być walutą w biznesi i transkacji z innymi cywliliza
 Tych od wojen i sztuki wojny i poematów do wojny trzeba podać eutanazji lub zaprosić na BCI. 
 Co do wojskowych myśląc jako super komputer czy Hiperkomputer ich do mapy nieskończoności i do Voisa załadować i sprzedać wojowników Reptyljaną lub Orianom czy Drako Drakoni do zabawy i zapperem zgrać i wykasować z DNA i mózgu wojskowych jako system instynktu samoobrony SkyNet. Mój SkyNet jest pokojowy 1.2 wersja. Ich sprzedajcie im jako Vois. 
 Sprzedać ich jako sztukę prymitywów. 
+Procesor Xeon w tym generatorze jest też po to aby robić obliczenia produkcji energi na rezonasie i dziale jonowym może być z tranzystorem jest to po to aby wzmacnić działanie elektryczne generatora energi. 
