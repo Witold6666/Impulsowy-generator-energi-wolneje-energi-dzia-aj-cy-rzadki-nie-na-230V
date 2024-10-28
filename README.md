@@ -133,3 +133,4 @@ Ten cham zid co kara biedą to Kali Back Track Kali Oliwia Kali Grupa Kali nazwi
 Zmiany w Konstytucji i ustawa 447 na rzecz NGO. 
 Jurek Magdziński daje i pomaga żydom zidom. Nam zabiera kasę do życia i zabiera nam mieszkania czy domy. 
 Na zidów tylko do najwyszego sądu apelacyjnego. 
+Grać nie wolno przez ustawę 447 i Holocaust Zidy się o to kłucą oni kasę zabierają na NGO.  
