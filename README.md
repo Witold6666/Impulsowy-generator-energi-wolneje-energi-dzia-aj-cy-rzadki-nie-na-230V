@@ -126,3 +126,4 @@ Co do wojskowych myśląc jako super komputer czy Hiperkomputer ich do mapy nies
 Sprzedać ich jako sztukę prymitywów. 
 Procesor Xeon w tym generatorze jest też po to aby robić obliczenia produkcji energi na rezonasie i dziale jonowym może być z tranzystorem jest to po to aby wzmacnić działanie elektryczne generatora energi. 
 Izrael chce klaszycznie konwencjonalnie pozyskiwać energię zawsze z węgla nawet jak to jest nie opłacalne i drogi bo jest post wysiłek. Zidy słuchają tylko węglarzy lub od uranu i plutonu i izotopów.  Zidy kochają ciepienie u kobiet i młodych chłopaków. Można zrobić układ sclony lepsza gwarancja jakości od budowy piramid. 
+Same panele fotowoltaiczne bez tej przetwornicy Tokamak są tylko zabawką ta przetwornica zachowuje energię jak Akumulator elektroniczny bez akumulatora zwykłego na stałę pracuje jak generator energi stale elektromagnetycznie. 
