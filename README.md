@@ -132,3 +132,4 @@ Ten generator można zrobić tylko do 100kW 400V 3 fazy na szyne Din.
 Ten cham zid co kara biedą to Kali Back Track Kali Oliwia Kali Grupa Kali nazwisko Przybysz i Jurek Magdziński 112 jakaś Policja. Że nie ma na żonę i są partyzantki. Zidy oni są.
 Zmiany w Konstytucji i ustawa 447 na rzecz NGO. 
 Jurek Magdziński daje i pomaga żydom zidom. Nam zabiera kasę do życia i zabiera nam mieszkania czy domy. 
+Na zidów tylko do najwyszego sądu apelacyjnego. 
