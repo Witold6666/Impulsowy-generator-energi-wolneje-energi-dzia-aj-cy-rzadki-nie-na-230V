@@ -129,3 +129,4 @@ Izrael chce klaszycznie konwencjonalnie pozyskiwać energię zawsze z węgla naw
 Same panele fotowoltaiczne bez tej przetwornicy Tokamak są tylko zabawką ta przetwornica zachowuje energię jak Akumulator elektroniczny bez akumulatora zwykłego na stałę pracuje jak generator energi stale elektromagnetycznie. 
 Ten zasub plików można sprzedać jako gazatę lub książke kompletnej elektrowni energi z przyszłości. 
 Ten generator można zrobić tylko do 100kW 400V 3 fazy na szyne Din. 
+Ten cham zid co kara biedą to Kali Back Track Kali Oliwia Kali Grupa Kali nazwisko Przybysz i Jurek Magdziński 112 jakaś Policja. Że nie ma na żonę i są partyzantki. Zidy oni są.
