@@ -135,3 +135,4 @@ Jurek Magdziński daje i pomaga żydom zidom. Nam zabiera kasę do życia i zabi
 Na zidów tylko do najwyszego sądu apelacyjnego. 
 Grać nie wolno przez ustawę 447 i Holocaust Zidy się o to kłucą oni kasę zabierają na NGO.  
 Te generatory dla sieci globalnej to znikome korzyści energi. 
+Dynamo na Korbę zasili tylko inteligentny Vois. Nie zasili zegarka z murzynem dynamo na korbę na USB.  
