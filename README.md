@@ -138,3 +138,4 @@ Te generatory dla sieci globalnej to znikome korzyści energi.
 Dynamo na Korbę zasili tylko inteligentny Vois. Nie zasili zegarka z murzynem dynamo na korbę na USB.  
 Na oszczędzacze potrzeba kolejnych lini energetycznych i dodatkowego generatora w elektrowni. Bez tego są zwracia. Te wymysły to robi tylko 112 i Izrael ich żarty kaczor donald. 
 Żydzi mają autyzm. Obecna sieć energetyczna jest OK. To pogotowie ma autyzm bo nie wie jak zrobić auta elektryczne na zasilacz USB. 
+Co do tych oszczędzaczy potrzebny jest Transoformator na 6 AC kabli w rozdzielni. 2 Linie tego trasnforamtora są przeznaczone do oszczędzaczy a reszta to generator. 2 Linie oszczedzaczy to prądnica wirowa AC w bloku elektrowni. Do przyłącza sieci ludzi są tylko 2 lub 4 linie kabli do domu lub bloku czy Penthasua. Oszczędzacz może być u klijenta lub u Bloku elektrowni ale bez tego transformatora robi się zwarcie. A dostakowo powstaje nowa energia elektryczna. 
