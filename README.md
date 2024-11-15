@@ -149,3 +149,4 @@ Loty kosmiczne mogą dać wolność od Elenów Masków i innych władz ze 112. T
 Władcy tej ziemi są lewi. 
 Pewnie kobiety z innych grup społecnzych można zabierać ze sobą w kosmos ale nie można zabrać tego zegarka. I za to z urzędu tych aferzystów zaprosimy na eutanazję. 
 Możliwość budowy elektrowni nowej generacji będzie za 300 lub 500 lat. Może za 100 lat. Rząd za te lata zrobi remont kabli elektrowni i modernizacje na razie nie ma pieniedzy.
+Oszczędzacze nie pójdą do kosza. Elektrycy się wycwanili przejrzeli na oczy. Do tych oszczędzaczy dajcie gratis powerbank z Akula TPU i generator na Korbę DC lub AC.  
