@@ -163,3 +163,4 @@ Elen Rypli i ci aktorzy i te firmy to nie udaczniki im zalerzy tylko na kriogeni
 Reaktor łukowy tokamk ten z opisu i tego Gita ma 35 cm szerokości 40 cm długości 25 cm wysokości na port USB C. Chce ten tokamk USB C kupić na allegro jak będzie do 1000 zł lub 100 zł. 
 To zimno to Kristin Bell z projektu Frozen ratujmy autyzm u wszystkich dla artystów takie NGO co generuje w mózgu radiem harrp autyzm. Ten Wiater to izrael. Cała historia wiatru w hiperprzestrzeni to izrael ten zimny wiater.
 Te zimne ceny ten autyzm i sport Ninja zimna Fuzja i Aua to boli puszczaj bo będzie ukryta prawda z TV to autyzm i psychiczne zimno. Ceny że wszystko jest drogie i nie starcza na nic z wypłaty to zimno psychiczne i autyzm tych psów i zwierząnt. Te afery to harrp i izrael to 112 i Policja czy wojsko i kler to izrael ich tego szkoli i szkaluje. Tyle wiem. 
+Ten Geming i to zimno to izrael to TV. 
