@@ -158,4 +158,4 @@ Jurek Magdziński jest filarem finasów pracuje w policji i budrzecie uni. Przez
 Powiny już być od 4 lat w sklepie dostępne kieszonkowe tokamaki jak Reaktory łukowe ze sklepu coś lepszego niż młody technik. Ja już powinienem mieć taki reaktor łukowy tokamak kieszonkowy od 1 roku a ich nie ma w sklepach. Coś jest nie tak. Znów Kaczor Donald lub inny żart. 
 Lewica znów tokamak odkłada w przyszyszłość i robi żarty z zasilaczami USB. Lewica to chyba są galadiatorzy z PGE. 
 Gladiatorzy to ten Geming i dynamo na korbę czyli szachy w grę ja produkuje energię na korbę ręką i ćwicze mięśnie rąk. Ten tokamka kieszonkowy powinien być już dawno w sklepie od 4 lat. Oni są z unrila ternalmenta i sportu i zakazu mechatroniki. Lewica to gównie kluby sztuk walk i sportu.  
-Żydzi to mrozine dziady jak wiedzmini. Szczgólnie Aleksa cheng ta biologiczna i Anstasiaja in tech to mroźna kobieta oni wszyscy są zimni. 
+Żydzi to mrozine dziady jak wiedzmini. Szczgólnie Aleksa cheng ta biologiczna i Anstasiaja in tech to mroźna kobieta oni wszyscy są zimni ich DNA to mróz i zimna fuzja nie termonuklerana fuzja. Oni to święnta i autyzm.  
