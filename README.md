@@ -148,3 +148,4 @@ Ci Wojskowi są chorzy nie pozwalają ucieć w kosmos ich jest dużo na ziemi. O
 Loty kosmiczne mogą dać wolność od Elenów Masków i innych władz ze 112. To 112 jest złe dla ludzi. Ziemia to akwen zamknienty tu trzyma nas się jak niewolników do pracy w Biedronkach dla legi sparty i Izraela. Czas podjąć kroki aby opóścić ten świat. Energia jest drukarki kwantowe są. Tylko 112 jest małym dzieckiem co nie chce nas póścić. Oni tylko jak teroryści kłucą się o prezenaty i świenta wigilje nie naszą wolność. Projekt Awatr 2045 to kolejny projekt liczenia ludzi i wpisywania ich do akt. Brak wolności.  
 Władcy tej ziemi są lewi. 
 Pewnie kobiety z innych grup społecnzych można zabierać ze sobą w kosmos ale nie można zabrać tego zegarka. I za to z urzędu tych aferzystów zaprosimy na eutanazję. 
+Możliwość budowy elektrowni nowej generacji będzie za 300 lub 500 lat. Może za 100 lat. 
