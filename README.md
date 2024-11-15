@@ -154,3 +154,4 @@ Ten generator składa się w łańcuch w duży Generator. Co do mojego zamówien
 Oszczędzacz to 1 składowa tego genratora dodatek bez którego nie ma nadprodukcji energii.  
 Oze to kaplica sekstyńska i Jezus są awarie i sudoku. Przez na lewo. Nie na prawo. 
 Ten Generator z procesorem CPU wystarczy z opisu za 1000 zł 35 cm na 40 cm 25 cm gniazdko lub ze świnią na 400V.  
+Jurek Magdziński jest filarem finasów pracuje w policji i budrzecie uni. Przez niego i jego decyzje ja w przyszłości żyje ubogo i na korbę mam generator i kobiety w systemie operacyjnym na korbę. Przez tego ekologa klepię biedę a on gromadzi kapitał. Zrobił na lotto przekrent. Zabrał kasę lotto i zakazał gry bo jego ludziom nie chce się jeździć na konwoje i nosić pieniedzy z konwoji. Ci ludzie są lewniwi. 
