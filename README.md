@@ -166,3 +166,4 @@ Te zimne ceny ten autyzm i sport Ninja zimna Fuzja i Aua to boli puszczaj bo bę
 Ten Geming i to zimno to izrael to TV. 
 Te zakazy i wszystko ze sznurka to też geming zimna i autyzm na nobla. Zakaz korzystania z obrioników energi regulowany finasowo przez skarbówkę wypłatami pieniedzy i rachunkami to też izrael. Kórtki zimowe po górach zimna moda to też izrael. Ciękie zimne płaszcze z ręcznika wełnianego to też izrael lb dywan też zimny izrael to całe 112 to izrael. I te zakazy korzystania z energi elektrycznej to też kaczor donald i izrael. To zimno i ten sport te voisy to też izrael ta świadomość to też izrael ten cynizm to zimno legi sparty. 
 Ci politycy to gladiatorzy oni zabierają pieniadze ludziom co chcą się ogrzać są jak Chif robią wiatr jak zimne dzieci swoim zachowaniem. Oni są z izraela jak podają kroniki. 
+Oni to te kórtki sportowe zimowe górskie. 
