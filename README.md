@@ -155,3 +155,4 @@ Oszczędzacz to 1 składowa tego genratora dodatek bez którego nie ma nadproduk
 Oze to kaplica sekstyńska i Jezus są awarie i sudoku. Przez na lewo. Nie na prawo. 
 Ten Generator z procesorem CPU wystarczy z opisu za 1000 zł 35 cm na 40 cm 25 cm gniazdko lub ze świnią na 400V.  
 Jurek Magdziński jest filarem finasów pracuje w policji i budrzecie uni. Przez niego i jego decyzje ja w przyszłości żyje ubogo i na korbę mam generator i kobiety w systemie operacyjnym na korbę. Przez tego ekologa klepię biedę a on gromadzi kapitał. Zrobił na lotto przekrent. Zabrał kasę lotto i zakazał gry bo jego ludziom nie chce się jeździć na konwoje i nosić pieniedzy z konwoji. Ci ludzie są lewniwi. 
+Powiny już być od 4 lat w sklepie dostępne kieszonkowe tokamaki jak Reaktory łukowe ze sklepu coś lepszego niż młody technik. Ja już powinienem mieć taki reaktor łukowy tokamak kieszonkowy od 1 roku a ich nie ma w sklepach. Coś jest nie tak. Znów Kaczor Donald lub inny żart. 
