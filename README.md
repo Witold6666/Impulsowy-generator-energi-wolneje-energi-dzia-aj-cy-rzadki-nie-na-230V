@@ -151,3 +151,4 @@ Pewnie kobiety z innych grup społecnzych można zabierać ze sobą w kosmos ale
 Możliwość budowy elektrowni nowej generacji będzie za 300 lub 500 lat. Może za 100 lat. Rząd za te lata zrobi remont kabli elektrowni i modernizacje na razie nie ma pieniedzy.
 Oszczędzacze nie pójdą do kosza. Elektrycy się wycwanili przejrzeli na oczy. Do tych oszczędzaczy dajcie gratis powerbank z Akula TPU i generator na Korbę DC lub AC.  
 Ten generator składa się w łańcuch w duży Generator. Co do mojego zamówienia ja zapłacę nawet 1000 zł za generator wolnej energi na drut w walizce 35 cm na 40 cm małe pudełko z generatorem na 230V kupię przez allegro zbieram na to pieniadzę nie ma części kupie z fabryki. Może być montaż młody technik. 
+Oszczędzacz to 1 składowa tego genratora dodatek bez którego nie ma nadprodukcji energii.  
