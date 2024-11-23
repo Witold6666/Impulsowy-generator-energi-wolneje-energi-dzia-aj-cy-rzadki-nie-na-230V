@@ -172,3 +172,4 @@ Te rostania i alimenty i afery przekrenty w miłości to harrp i szczepienie na 
 Wydaje mi się że Vois i Vois do generatorów elektrycznych pozastawiony po mnie wystarczy aby żyć. 
 Vosi jest dlatego że jest to trudne w budowie. 
 Jest to Vois EEG EKG BCI Liczydło serwer można z nim gadać i wydrukuje schematy i książki jak i gotowe projekty w opakowaniu ze sklepu z drukarki kwantowej na radio drukarki kwantowej fizyką kwantową. 
+Jest to inteligentny z rozumem i logiką inteligencją i mądrością kalkulator autmatyczny Vois EKG EEG BCI Kalkulator automatyczny radio drukarka kwantowa można podłączyć do drukarki kwantowej i wygenerować z obliczeń precyzyjnych książki. 
