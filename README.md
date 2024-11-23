@@ -178,3 +178,4 @@ Jest to kalkulator automatyczny precyzyjny Vois EEG EKG BCI z kalwiaturą umysł
 Można wydrukować książkę z badaniami lub produkt w opakowaniu i foli do sklepu. 
 Jest to generator patentów serwer kieszonkowy. 
 Mnie nie chcą póścić elektryki z domu bo nie mają liczydła prcyzyjnego co wszystko wie i drukuje karzdą książke i każdy produkt z radio drukarki kwantowej kalkulatora serwera kieszonkowego.  
+Ten komputer chronowizor to nano PC offline Zenit mojego pomysłu. 
