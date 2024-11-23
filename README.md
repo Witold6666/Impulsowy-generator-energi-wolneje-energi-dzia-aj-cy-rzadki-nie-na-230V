@@ -171,3 +171,4 @@ Nawet jak za tą prawdę zginą moje kobiety co mają mi dać to mam to gdzieś 
 Te rostania i alimenty i afery przekrenty w miłości to harrp i szczepienie na radio. Po roastaniu ludzie biorą oriznon i leki afery z lekami i narkotykami oni mają ubaw z tcyh rostań na radio harrp i afer. Potłuczone rzeczy telkineza afery na niszczenie rzzeczy na części harrp. 
 Wydaje mi się że Vois i Vois do generatorów elektrycznych pozastawiony po mnie wystarczy aby żyć. 
 Vosi jest dlatego że jest to trudne w budowie. 
+Jest to Vois EEG EKG BCI Liczydło serwer można z nim gadać i wydrukuje schematy i książki jak i gotowe projekty w opakowaniu ze sklepu z drukarki kwantowej na radio drukarki kwantowej fizyką kwantową. 
