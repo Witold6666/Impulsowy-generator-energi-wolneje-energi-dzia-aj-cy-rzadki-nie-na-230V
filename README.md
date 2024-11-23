@@ -175,3 +175,4 @@ Jest to Vois EEG EKG BCI Liczydło serwer można z nim gadać i wydrukuje schema
 Jest to inteligentny z rozumem i logiką inteligencją i mądrością kalkulator autmatyczny Vois EKG EEG BCI Kalkulator automatyczny radio drukarka kwantowa można podłączyć do drukarki kwantowej i wygenerować z obliczeń precyzyjnych książki. 
 Jest to Liczydło Kalkulator Automatyczny radio Drukarka Kwantowa Vois z EEG EKG BCI z klawiaturą umysłową BCI i klawiaturą klawiaszową.  
 Jest to kalkulator automatyczny precyzyjny Vois EEG EKG BCI z kalwiaturą umysłową i klawiaszową jest to serwer kieszonkowy do liczenia wszystkiego i niczgeo logikom jest SkyNet 1.2 Wersja. 
+Można wydrukować książkę z badaniami lub produkt w opakowaniu i foli do sklepu. 
