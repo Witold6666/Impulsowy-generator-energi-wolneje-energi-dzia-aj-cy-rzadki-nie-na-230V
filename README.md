@@ -183,3 +183,4 @@ Możemy liczyć tak długo aby były lepsze efekty nowych technologi. Lub wybra�
 Ludzią trzeba dać zappery aby ich odnowić ze starości. 
 Planeta powoli się przeludnia. Jak nie będzie lotów kosmicznych to nic dalej się tu nie rozwinie. Zasiedlcie tylko układ słoneczny. Inne układy słoneczne to inne cywlizacje. 
 Ten procesor może zapełnić magezyny sklepów towarem takim że nie trzeba myśleć. 
+Zenit to Vois BCI EEG EKG z klawiaturą umysłową i klawiszową z kalkulatorem automatycznym i czatem czy z opisywaniem przedmiotu aby go wyliczyć lub dostać i opisać lub dostać książkę czy gotowy produkt ten Vois jest na 1002 osoby i duże rodziny. 
