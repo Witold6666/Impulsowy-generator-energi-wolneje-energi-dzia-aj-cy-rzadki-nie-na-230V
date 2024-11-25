@@ -179,3 +179,4 @@ Można wydrukować książkę z badaniami lub produkt w opakowaniu i foli do skl
 Jest to generator patentów serwer kieszonkowy. 
 Mnie nie chcą póścić elektryki z domu bo nie mają liczydła prcyzyjnego co wszystko wie i drukuje karzdą książke i każdy produkt z radio drukarki kwantowej kalkulatora serwera kieszonkowego.  
 Ten komputer chronowizor to nano PC offline Zenit mojego pomysłu. 
+Możemy liczyć tak długo aby były lepsze efekty nowych technologi. Lub wybrać podróż handlową na wymianę technologi. I przywieźć tu na ziemię. Czas też zasiedlić układ słoneczny czy dalej iść i zasiedlić. Ja się wyprowadzę jak będzie wojna lub znów będzie bieda mam zbroje starka.  
