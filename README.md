@@ -185,4 +185,5 @@ Planeta powoli się przeludnia. Jak nie będzie lotów kosmicznych to nic dalej 
 Ten procesor może zapełnić magezyny sklepów towarem takim że nie trzeba myśleć. 
 Zenit to Vois BCI EEG EKG z klawiaturą umysłową i klawiszową z kalkulatorem automatycznym i czatem czy z opisywaniem przedmiotu aby go wyliczyć lub dostać i opisać lub dostać książkę czy gotowy produkt ten Vois jest na 1002 osoby i duże rodziny. 
 Tymi moimi Voisami można zrobić i wydrukować laptopy z drukarkami kwantowymi i reaktory zbroi Starka. I inne rzeczy.
-Oszczędzacze to są już pamniki przeszłości jak fotowoltaika relikty z przed 100 lat. Na to trzeba zbudować całą elektrownie od nowa aby to wytrzymało. 
+Oszczędzacze to są już pąmniki przeszłości jak fotowoltaika relikty z przed 100 lat. Na to trzeba zbudować całą elektrownie od nowa aby to wytrzymało. 
+Nikt bez gier lotto nie zrobi zakupów czy nie kupi oszczęczadzczy jak bez drukarek kwantowcyh nie będzie zakupów. To 112 daje te zekazy z Izraela. Zenit to kalkulator filozoficzny może powiedzieć coś o Izraelu i jak wyjść tego dołka. Ale te zgromadzenia są jak zwykle bez sensu. Zenit potrafi drukować te rzeczy. 
