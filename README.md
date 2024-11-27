@@ -194,3 +194,4 @@ Zegarki te to jakiś debil jest. Marnuje życie matki i jej czas nad opieką czy
 Te Voisy Zenit może wydrukować kwantowo lub zrobić jak Nanotechnologia guma i zejść z Voisa. 
 Izrael i mosad wymyślił oszczędzacze i te zgearki samsung wach pass. Z Zenitem nie ma takich problemów. 
 W tych zegarkach samsung wach pass zarodniki wszczykuje laser kobietą aby je rodziły. Zenit tego nie robi drukuje kobiety lub jak Guma Nanotechnologi Awatar 2045 nawet z mięsa. 
+Surogatki po tym zegarku puchną jak kondesatory. Z zenitem takich problemów nie ma. Co do oszczędzaczy bez specjalnej sieci energetycznej na świecie robią się burze i zwarcia z linek energetycznych wyskakuje energia elektryczna na wieszchu. Dla mnie to cymbały z wojska oni zawsze olewali zalcenia zdrowotne jak złe 112. 
