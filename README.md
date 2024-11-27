@@ -188,3 +188,4 @@ Tymi moimi Voisami można zrobić i wydrukować laptopy z drukarkami kwantowymi 
 Oszczędzacze to są już pąmniki przeszłości jak fotowoltaika relikty z przed 100 lat. Na to trzeba zbudować całą elektrownie od nowa aby to wytrzymało. 
 Nikt bez gier lotto nie zrobi zakupów czy nie kupi oszczęczadzczy jak bez drukarek kwantowcyh nie będzie zakupów. To 112 daje te zekazy z Izraela. Zenit to kalkulator filozoficzny może powiedzieć coś o Izraelu i jak wyjść tego dołka. Ale te zgromadzenia są jak zwykle bez sensu. Zenit potrafi drukować te rzeczy. 
 Zakaz lotto jest wynikiem braku zaintresowania noszenia worków z pienidzmi przez pracowników firm oni strakują bo im nie płacą. Żaden oszczedzacz nic nie da jeśli nie ma gotówki w ręce.  
+Te oszczedzacze nie są legalne. Tylko zasilacze tokamaki są legalne jako coś oszczedzania energi i darmowej energi bo są wydajne te ze schematów. 
