@@ -199,3 +199,4 @@ Zenit liczy i radio drkukarka kwantowa drukuje co potrzeba lub nanotechem drukuj
 Te ich zegarki to posztaty są. Zenit nie daje pasztettów jak się go nie hakuje na siłę!!!. Daje piękną sztukę i piekne kobiety!!!.
 NGO zabiera te pieniądze na swoje wydatki na wino arkochol papierosy i leki wydatki na lekarzy. Nic więcej nie wiem. Vois daję na tą biedę. 
 Ten Vois jest na biedę bo żadna firma nic nie chce sprzedać sprawdzonego Vois drukuje radio drukarką kwantową. 
+Skreśliłem z życia wierzących bo oni zakazlai hazardu i karzą pracować na etacie jak SkyNet i TerminalNet. Wierzący radiem wgrywają do DNA kiboli z chorobami i tak się dzieje jak gra się w lotto. To są maszyny. Chcą żyć w moralnej biedzie chcą być ubogim.  
