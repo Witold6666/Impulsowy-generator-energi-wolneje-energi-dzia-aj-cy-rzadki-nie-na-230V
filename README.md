@@ -197,3 +197,4 @@ W tych zegarkach samsung wach pass zarodniki wszczykuje laser kobietą aby je ro
 Surogatki po tym zegarku puchną jak kondesatory. Z zenitem takich problemów nie ma. Co do oszczędzaczy bez specjalnej sieci energetycznej na świecie robią się burze i zwarcia z linek energetycznych wyskakuje energia elektryczna na wieszchu. Dla mnie to cymbały z wojska oni zawsze olewali zalcenia zdrowotne jak złe 112. 
 Zenit liczy i radio drkukarka kwantowa drukuje co potrzeba lub nanotechem drukuje jak guma. 
 Te ich zegarki to posztaty są. Zenit nie daje pasztettów jak się go nie hakuje na siłę!!!. Daje piękną sztukę i piekne kobiety!!!.
+NGO zabiera te pieniądze na swoje wydatki na wino arkochol papierosy i leki wydatki na lekarzy. Nic więcej nie wiem. Vois daję na tą biedę. 
