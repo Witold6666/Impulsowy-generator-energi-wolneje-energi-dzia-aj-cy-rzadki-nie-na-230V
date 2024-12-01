@@ -202,3 +202,4 @@ Ten Vois jest na biedę bo żadna firma nic nie chce sprzedać sprawdzonego Vois
 Skreśliłem z życia wierzących bo oni zakazlai hazardu i karzą pracować na etacie jak SkyNet i TerminalNet. Wierzący radiem wgrywają do DNA kiboli z chorobami i tak się dzieje jak gra się w lotto. To są maszyny. Chcą żyć w moralnej biedzie chcą być ubogim.  
 Vois jest na biedę ten Zenit. 
 Mój Vois jest na Biedę i jest anty Kali. I anty żyd anty Wawelski. Daje Luksus. 
+Co do oszczędzaczy to są afery z grząłką elektryczną i suną elektryczną i omijaniem licznika aby było w domu jak w saunie elektrycznej. Lepiej postawić tokamaka w elektrowni. Bezpieka to autyzm. 
