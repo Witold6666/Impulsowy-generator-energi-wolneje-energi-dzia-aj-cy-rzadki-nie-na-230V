@@ -207,3 +207,4 @@ Co do oszczędzaczy i urządzeń do oszczędzania energi elektrycznej pasywnie p
 Żeby być uczciywym liny i szyny tytanowe czy wolframowe czy stopy tytanowo wolframowe dużo ważą żaden czarny mag tego nie wyczaruje bo umrze na zwawał i się zazipie. Nawet drukarki kwantowe się spalą. Co do tej mody to kolejna bańka spekulacyjna i upadek firm i krajów krachy przez cwaniaków. 
 Bo nie mają wiedzy dlatego jest krach. 
 Linki duarl aluminium wytrzymują lata można je elektrycznie serwisować echem fal radiowych radiem, ale bez oszczędzaczy i urządzeń od oszczędzania energi bo ich nie grzeją. Linki i szyny Wolframowe i tytanowe wytrzymują 500 600 lat i do kosza bo się palą, Linki tytanowo wolframowe wytrzymują tylko 1000 lat jest z tymi linkami jak z atomem 1 raz i do kosza.  
+Co do transportu to lotniczy i autami elektrycznymi z drukarek kwantowych jak nie ma kasy. Auta powiny mieć generator energi elektroniczny z Zenita. 
