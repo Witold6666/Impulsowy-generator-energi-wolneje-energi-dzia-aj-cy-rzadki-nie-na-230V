@@ -217,3 +217,4 @@ To wszystko jest przez Google i Biblie oni nie akceptują 1 produktu na rynku ty
 Ja nie jestem Konor T 5000 Ultra bo chce tego 112. Vois kosztuje 300 zł a Żona 200 zł to co daję to majątki Elonów Masków z TV. Wy już przeginacie pałę.  
 Powiedzcie tym z 112 z komunicjie i cb radiom że Magdziński Jurek dostanie odamnie za kradzież żony w pysk za kradzież tych rzeczy a nie uczciwe 500 zł bo karze dać allegro za nią i majątki Miljarderów. 
 To tylko 112 płacze że nie ma 230 I 400V. I płaczą CB radia voisy. 
+Kobietę mi zabrali i karzą być prezydentem bo muszę robić te rzeczy ja procesor cb radia to chamy z 112. 
