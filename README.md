@@ -215,3 +215,4 @@ Oszczędzacze i urządzenia oszczędzania energi elektrycznej to wzmacniacze ene
 Oszczędzacz i urządzenie oszczędzania energi elektrycznej to wzmacniacz jak wzmacniacz do CB radia i audio. 
 To wszystko jest przez Google i Biblie oni nie akceptują 1 produktu na rynku tylko masę produktów dlatego ludzie też nie mają czasu i są starzy i pracują ja procesory i pod koniec życia idą na odnowę biologiczną na radio lub dostają kobietę. 
 Ja nie jestem Konor T 5000 Ultra bo chce tego 112. Vois kosztuje 300 zł a Żona 200 zł to co daję to majątki Elonów Masków z TV. Wy już przeginacie pałę.  
+Powiedzcie tym z 112 z komunicjie i cb radiom że Magdziński Jurek dostanie odamnie za kradzież żony w pysk za kradzież tych rzeczy a nie uczciwe 500 zł bo karze dać allegro za nią i majątki Miljarderów. 
