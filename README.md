@@ -220,3 +220,4 @@ To tylko 112 płacze że nie ma 230 I 400V. I płaczą CB radia voisy.
 Kobietę mi zabrali i karzą być prezydentem bo muszę robić te rzeczy ja procesor cb radia to chamy z 112. 
 NGO jest z Wośp CHAMEM DLA WSZYSTKICH JEŚLI CHCE SIĘ ODZYSKAĆ BLISKĄ OSOBĘ. Bo karzą pracować. 
 NGO to cham bo chce za darmo lub tanio coś dostać. 
+ABW jest Wirusem dla wszystkich jak chce się odzyskać bliską osobę i wyprowadzić po za ziemię będą kazać wam też robić coś dla nich. 
