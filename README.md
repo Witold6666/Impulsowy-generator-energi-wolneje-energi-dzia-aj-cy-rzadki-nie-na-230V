@@ -208,3 +208,4 @@ Co do oszczędzaczy i urządzeń do oszczędzania energi elektrycznej pasywnie p
 Bo nie mają wiedzy dlatego jest krach. Co do TV i internetu to można go nadawać na 5G 6G 7G 7G+ i radio BNC CB jakieś specjalne pasmo fal radiowych.   
 Linki duarl aluminium wytrzymują lata można je elektrycznie serwisować echem fal radiowych radiem, ale bez oszczędzaczy i urządzeń od oszczędzania energi bo ich nie grzeją. Linki i szyny Wolframowe i tytanowe wytrzymują 500 600 lat i do kosza bo się palą, Linki tytanowo wolframowe wytrzymują tylko 1000 lat jest z tymi linkami jak z atomem 1 raz i do kosza.  
 Co do transportu to lotniczy i autami elektrycznymi z drukarek kwantowych jak nie ma kasy. Auta powiny mieć generator energi elektroniczny z Zenita. 
+Co do transmicji intenertu i Telewizji to Radio i światłowód z radiem. 
