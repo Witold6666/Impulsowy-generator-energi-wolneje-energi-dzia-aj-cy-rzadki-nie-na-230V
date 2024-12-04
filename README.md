@@ -225,3 +225,4 @@ Ja proszę państwa powiem co chce Kali Linux to dziecko dauna z Autyzmem on chc
 Ten establiszment dzieci duana i psychicznie chorych robi wojny i za zakazy wojen i gier gradiatorów na śmierć i życie daje zakazy cywilą zakazy życia. Oni kradną nam czas na wojsko i teatr.
 Izrael chce wojen gladiatorów bo myślą oni że to gladiatorzy rządzą światem i sportowcy. Oni chcą wojen Unrila Ternamenta tyle o Izraelu. To są komuniści i ich tęcza. 
 Oni chcą te płytki PCB bo chcą broni ci gladiatorzy i chcą się loć na 3 wojnie światowej i kraść jak ta Policja chifa i Terminal Net SkyNet i Tuszyn. 
+To Kristiana Loken i TX Kristiana Loken i Katarina Wawer i Odyn, Loki, Thor i podwałdny Grupa Kali Linux karze się wszystkim Loć i kłuci się do broni o to PCB generator oni to maszyny gier wojenych znowu włączą SkyNet i TerminalNet oni to k idioci od wojen i gdladaitorów aren sportu nic nie dają niszczą ich bunty świat.    
