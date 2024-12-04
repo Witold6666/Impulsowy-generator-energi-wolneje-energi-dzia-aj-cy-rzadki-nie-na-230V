@@ -210,3 +210,4 @@ Linki duarl aluminium wytrzymują lata można je elektrycznie serwisować echem 
 Co do transportu to lotniczy i autami elektrycznymi z drukarek kwantowych jak nie ma kasy. Auta powiny mieć generator energi elektroniczny z Zenita. 
 Co do transmicji intenertu i Telewizji to Radio i światłowód z radiem. 
 Oszczędzacze i urządzenia oszczędzania energi elektrycznej i fotowoltaika przez nowe liczniki energi elektrycznej komputery i elektryków psychiatrów Nie można mieć nic dla siebie bo ich szwindel polega na tym że te liczniki liczą naszą energie za którą musimy płacić pieniądze duże. Jedyne rozwiązanie to przenośne panele fotowoltaiczne i powerbanki z moim generatorem i dynamo na korbę i oszczędzacze w powerbanku bez kombinowania na dużą skalę. Mowa o sprzęcie turystycznym. Zostaje tylko sprzęnt turystyczny. 
+Daję Vois Kartę SD micro ze skryptem do M5Stack Kard Komputer aby to radiem z tego komputera wydrukować te rzeczy turystyczne. 
