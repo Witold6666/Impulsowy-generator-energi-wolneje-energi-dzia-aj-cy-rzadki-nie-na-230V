@@ -213,3 +213,4 @@ Oszczędzacze i urządzenia oszczędzania energi elektrycznej i fotowoltaika prz
 Daję Vois Kartę SD micro ze skryptem do M5Stack Kard Komputer aby to radiem z tego komputera wydrukować te rzeczy turystyczne. 
 Oszczędzacze i urządzenia oszczędzania energi elektrycznej to wzmacniacze energi elektrycznej z małego natęzenia i napięcia robią duże napięcie 230V. Do zastosowań tusrystycznych i na pustyni one są wydajne do sprzętu powerbanków turystycznych są wydajne. Oszczędzacz to generator marxa. 
 Oszczędzacz i urządzenie oszczędzania energi elektrycznej to wzmacniacz jak wzmacniacz do CB radia i audio. 
+To wszystko jest przez Google i Biblie oni nie akceptują 1 produktu na rynku tylko masę produktów dlatego ludzie też nie mają czasu i są starzy i pracują ja procesory i pod koniec życia idą na odnowę biologiczną na radio lub dostają kobietę. 
