@@ -1,4 +1,4 @@
-# Impulsowy-generator-energi-wolneje-energi-dzia-aj-cy-rzadki-nie-na-230V Opis kompletnej elektrowni. Całość to elektryczny agregat energi. Kalkulator automatyczny AI Zenit. AI Zenit jest do projektowanie powerbanków do życia na pustyni i promowania jasnego niebieskiego kapitalizmu.   
+# Impulsowy-generator-energi-wolneje-energi-dzia-aj-cy-rzadki-nie-na-230V Opis kompletnej elektrowni. Całość to elektryczny agregat energi. Kalkulator automatyczny AI Zenit. AI Zenit jest do projektowanie powerbanków do życia na pustyni i promowania jasnego niebieskiego kapitalizmu. Procesor Zenit.   
 Jest to bateryjny generator wolnej energi do modeli dronów lub statków kosmicznych lub aut bez potrzeby montowania mocnych akumulatorów. 
 Działa z 1,5V do 230V. 
 Z drutem nawojowym i zapalniczką plazmową na USB można zrobić ten generator jako zasilacz a zaplaniczki plazmowe można kupić w internecie lub na stacji paliw. Z przejscowkami bez lutowania czy zaplaniczki plazmowej i drutu nie wyjdzie. 
