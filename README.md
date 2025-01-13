@@ -241,3 +241,4 @@ Woda to odpady po słonicu i jądrze ziemi z syntezy radioaktywnej. Więc jak en
 Ci za płotem miłość kupują za ubranie i koc zwoltex arosa kobiety miłość mężcyzny za perfumy. Tu w Polsce za 10 000 000 zł. 
 Kulczyk stary i młody i Paweł Łukomski gadali takie przysłowia.: Polacy to nie gęsi i kaczki swój język w finasach mają. 
 Czarny mówił tak o Polaku i Polce. Polak i Polka to frajer i frajerka jeśli liczy na miłość w czasach naszego panowania nad światem. 
+Paweł Łukomski głosił jeszcze 1 przysłowie ile zarobisz tyle zbudujesz. O socjaliści kradną jak komuniści u nich nie zrabia się piniędzy. 
