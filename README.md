@@ -242,3 +242,4 @@ Ci za płotem miłość kupują za ubranie i koc zwoltex arosa kobiety miłość
 Kulczyk stary i młody i Paweł Łukomski gadali takie przysłowia.: Polacy to nie gęsi i kaczki swój język w finasach mają. 
 Czarny mówił tak o Polaku i Polce. Polak i Polka to frajer i frajerka jeśli liczy na miłość w czasach naszego panowania nad światem. 
 Paweł Łukomski głosił jeszcze 1 przysłowie ile zarobisz tyle zbudujesz. O socjaliści kradną jak komuniści u nich nie zrabia się piniędzy. 
+Kalu i Jonna Krupa to murzyn i dupek bo chce za darmo energi elektycznej i jest osztustką dlatego los angeles dla mnie nie istnieje i oni Kalu i Joanna krupa jest narkomanką są lewi bo nie chcą pieniedzy chcą za darmo za joninta po chłopsku jak głosi Kalu. Chyba moja opowieść o nich wystarczy co dobre a co złe.  
