@@ -231,3 +231,4 @@ Ja nie jestem rzecznikiem do spraw energi elektrycznej. Wini są ludzie bo chcą
 Oszczędzaczy nie ma bo pieniadze z elektrowni są w prywatnych rękach i to dla nich za duże inewstycje. Dla mnie socjaliści to niepełnosprawni umysłowo. Dlatego oszczędzaczy nie ma są w koszu. Nie ma sieci PGE nie jest przystosowana do tych oszczędzaczy. 
 To procesor do tych projektów do energetyki. 
 Stal z wodoru i tlenu ze spalania energi elektrycznej plazmy.
+Przez tych z PGE można mieć tylko oszczędzacze offline. Dla PGE oszczędzacze na sieci angielskiej w Polsce i za granicą jest to sudoku koniczna jest modernizacja jest droga i bez sensowna jak można postawić Tokamaka chyba że kłucimy się o prosnumenta co jest z ich winy PGE zakazane jak gry komputerowe i hazardowe itp sprawy to przez komunizm.   
