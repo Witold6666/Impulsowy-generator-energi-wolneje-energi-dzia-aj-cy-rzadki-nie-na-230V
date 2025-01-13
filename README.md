@@ -240,3 +240,4 @@ PGE mówi że tam za płotem nie ma życia.
 Woda to odpady po słonicu i jądrze ziemi z syntezy radioaktywnej. Więc jak energia była za darmo to woda i rolnictwo czy inne rzeczy też jest za darmo kasa za darmo na pracowników jako kartki za prace od naganiacza do pracy pracodawcy fundacji. Problem jest 2 jaki ci za płotem karją za zakaz socjalizmu i komunizmu nakotykami, w Polce krają za komunizm i za socjalizm i zakaz kapitalizmu narkotykami. 
 Ci za płotem miłość kupują za ubranie i koc zwoltex arosa kobiety miłość mężcyzny za perfumy. Tu w Polsce za 10 000 000 zł. 
 Kulczyk stary i młody i Paweł Łukomski gadali takie przysłowia.: Polacy to nie gęsi i kaczki swój język w finasach mają. 
+Czarny mówił tak o Polaku i Polce. Polak i Polka to frajer i frajerka jeśli liczy na miłość w czasach naszego panowania nad światem. 
