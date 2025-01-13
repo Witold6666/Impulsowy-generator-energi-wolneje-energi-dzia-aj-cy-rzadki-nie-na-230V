@@ -235,3 +235,4 @@ Przez tych z PGE można mieć tylko oszczędzacze offline. Dla PGE oszczędzacze
 Progam Prosnument dla PGE to Wyłudzument taca na żebraka aby hulała wonga kom czy bociany itp inne banki. 
 Włącielami elektrowni PGE w Bełchatowie i na świecie i miasta Bełchatów są Kulturyści nic więcej nie wiem jeżdzą na zawody ogiera roku. 
 Elektrownia jest czarnego. W Polsce się pości i oszczędza nie ma na miłość buzi buzi. Ja też chce wolnej energi i energi za darmo ale banki trzeba zliwkidować i obsługę elektrowni. Bo oni chcą za kasę. Sklepy i życie było by za darmo gdyby nie było faktury za elektrownie.  
+Kulczyki nie chcą za darmo oni nie słuchają SkyNetu i Terminalnetu mają szpitale dla tackich co chcą za darmo szpitale psychiatryczne czy chcą buzi buzi.  
