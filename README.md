@@ -233,3 +233,4 @@ To procesor do tych projektów do energetyki.
 Stal z wodoru i tlenu ze spalania energi elektrycznej plazmy.
 Przez tych z PGE można mieć tylko oszczędzacze offline. Dla PGE oszczędzacze na sieci angielskiej w Polsce i za granicą jest to sudoku koniczna jest modernizacja jest droga i bez sensowna jak można postawić Tokamaka chyba że kłucimy się o prosnumenta co jest z ich winy PGE zakazane jak gry komputerowe i hazardowe itp sprawy to przez komunizm.   
 Progam Prosnument dla PGE to Wyłudzument taca na żebraka aby hulała wonga kom czy bociany itp inne banki. 
+Włącielami elektrowni PGE w Bełchatowie i na świecie i miasta Bełchatów są Kulturyści nic więcej nie wiem jeżdzą na zawody ogiera roku. 
