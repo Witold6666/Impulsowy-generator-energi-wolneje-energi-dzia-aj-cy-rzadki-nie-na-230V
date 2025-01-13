@@ -234,3 +234,4 @@ Stal z wodoru i tlenu ze spalania energi elektrycznej plazmy.
 Przez tych z PGE można mieć tylko oszczędzacze offline. Dla PGE oszczędzacze na sieci angielskiej w Polsce i za granicą jest to sudoku koniczna jest modernizacja jest droga i bez sensowna jak można postawić Tokamaka chyba że kłucimy się o prosnumenta co jest z ich winy PGE zakazane jak gry komputerowe i hazardowe itp sprawy to przez komunizm.   
 Progam Prosnument dla PGE to Wyłudzument taca na żebraka aby hulała wonga kom czy bociany itp inne banki. 
 Włącielami elektrowni PGE w Bełchatowie i na świecie i miasta Bełchatów są Kulturyści nic więcej nie wiem jeżdzą na zawody ogiera roku. 
+Elektrownia jest czarnego. W Polsce się pości i oszczędza nie ma na miłość buzi buzi. Ja też chce wolnej energi i energi za darmo ale banki trzeba zliwkidować i obsługę elektrowni. Bo oni chcą za kasę. Sklepy i życie było by za darmo gdyby nie było faktury za elektrownie.  
