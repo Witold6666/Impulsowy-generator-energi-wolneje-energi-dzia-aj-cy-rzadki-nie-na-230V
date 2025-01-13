@@ -232,3 +232,4 @@ Oszczędzaczy nie ma bo pieniadze z elektrowni są w prywatnych rękach i to dla
 To procesor do tych projektów do energetyki. 
 Stal z wodoru i tlenu ze spalania energi elektrycznej plazmy.
 Przez tych z PGE można mieć tylko oszczędzacze offline. Dla PGE oszczędzacze na sieci angielskiej w Polsce i za granicą jest to sudoku koniczna jest modernizacja jest droga i bez sensowna jak można postawić Tokamaka chyba że kłucimy się o prosnumenta co jest z ich winy PGE zakazane jak gry komputerowe i hazardowe itp sprawy to przez komunizm.   
+Progam Prosnument dla PGE to Wyłudzument taca na żebraka aby hulała wonga kom czy bociany itp inne banki. 
